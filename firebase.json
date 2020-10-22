@@ -1,0 +1,11 @@
+{
+  "hosting": {
+    "site": "resep2028",
+    "public": "public",
+    "ignore": [
+      "firebase.json",
+      "**/.*",
+      "**/node_modules/**"
+    ]
+  }
+}
