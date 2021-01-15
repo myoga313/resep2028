@@ -1,0 +1,99 @@
+---
+description: "Resep Gongso Ayam khas Semarang | Cara Membuat Gongso Ayam khas Semarang Yang Enak dan Simpel"
+title: "Resep Gongso Ayam khas Semarang | Cara Membuat Gongso Ayam khas Semarang Yang Enak dan Simpel"
+slug: 589-resep-gongso-ayam-khas-semarang-cara-membuat-gongso-ayam-khas-semarang-yang-enak-dan-simpel
+date: 2020-12-30T08:04:11.343Z
+image: https://img-global.cpcdn.com/recipes/d29cc9d495b60af5/751x532cq70/gongso-ayam-khas-semarang-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/d29cc9d495b60af5/751x532cq70/gongso-ayam-khas-semarang-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/d29cc9d495b60af5/751x532cq70/gongso-ayam-khas-semarang-foto-resep-utama.jpg
+author: Mario Hill
+ratingvalue: 3.1
+reviewcount: 3
+recipeingredient:
+- " ayam bagian paha"
+- " bawang bombay iris tipis"
+- " cabai rawit"
+- " daun salam"
+- " lengkuaslaos"
+- " kecap manis"
+- " garam"
+- " lada bubuk"
+- " air"
+- " minyak goreng untuk menumis"
+- " bumbu halus "
+- " bawang putih"
+- " bawang merah"
+- " kemiri"
+- " cabai rawit"
+- " cabai merah"
+recipeinstructions:
+- "Siapkan bahan, cuci bersih ayam beri kucuran air jeruk nipis agar menghilangkan bau amis nya. tunggu 10 menit. lalu rebus ayam, masukkan garam secukupnya. rebus ayam sekitar 30-40 menit. setelah itu tiriskan"
+- "Haluskan bumbu sesuai resep yg ada. kemudian suwir2 ayam agar di gongso nanti bumbu bisa meresap. dan iris tipis bawang bombay"
+- "Ambil wajan/teflon masukkan minyak lalu tumis bawang bombay sampai harum dan kecoklatan, lalu masukkan bumbu halus, daun salam, lengkuas. tumis sampai harum"
+- "Masukkan ayam, gongso hingga merata dengan bumbu. masukkan kecap manis, garam, lada, penyedap rasa. masukkan air sedikit demi sedikit, gongso hingga air menyusut, koreksi rasa. dan siap disajikan dengan nasi panas 😋"
+categories:
+- Resep
+tags:
+- gongso
+- ayam
+- khas
+
+katakunci: gongso ayam khas 
+nutrition: 269 calories
+recipecuisine: Indonesian
+preptime: "PT14M"
+cooktime: "PT57M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+![Gongso Ayam khas Semarang](https://img-global.cpcdn.com/recipes/d29cc9d495b60af5/751x532cq70/gongso-ayam-khas-semarang-foto-resep-utama.jpg)
+
+Kamu Lagi mencari ide resep gongso ayam khas semarang yang Lezat Sekali? Cara menyiapkannya memang tidak susah dan tidak juga mudah. bila salah mengolah maka hasilnya akan hambar dan justru cenderung tidak enak. Padahal gongso ayam khas semarang yang enak seharusnya mempunyai aroma dan rasa yang dapat memancing selera kita.
+
+
+
+Ada beberapa hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari gongso ayam khas semarang, mulai dari jenis bahan, kedua pemilihan bahan segar sampai cara membuat dan menyajikannya. Tidak usah pusing jika hendak menyiapkan gongso ayam khas semarang enak di rumah, karena asal sudah tahu triknya maka hidangan ini dapat menjadi sajian istimewa.
+
+
+Di bawah ini ada beberapa tips dan trik praktis untuk membuat gongso ayam khas semarang yang siap dikreasikan. Anda bisa membuat Gongso Ayam khas Semarang memakai 16 bahan dan 4 tahap pembuatan. Berikut ini cara dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang dibutuhkan dalam pembuatan Gongso Ayam khas Semarang:
+
+1. Gunakan  ayam, bagian paha
+1. Ambil  bawang bombay, iris tipis
+1. Siapkan  cabai rawit
+1. Siapkan  daun salam
+1. Sediakan  lengkuas/laos
+1. Ambil  kecap manis
+1. Sediakan  garam
+1. Ambil  lada bubuk
+1. Gunakan  air
+1. Sediakan  minyak goreng untuk menumis
+1. Ambil  bumbu halus :
+1. Sediakan  bawang putih
+1. Sediakan  bawang merah
+1. Ambil  kemiri
+1. Sediakan  cabai rawit
+1. Sediakan  cabai merah
+
+
+
+
+<!--inarticleads2-->
+
+##### Langkah-langkah membuat Gongso Ayam khas Semarang:
+
+1. Siapkan bahan, cuci bersih ayam beri kucuran air jeruk nipis agar menghilangkan bau amis nya. tunggu 10 menit. lalu rebus ayam, masukkan garam secukupnya. rebus ayam sekitar 30-40 menit. setelah itu tiriskan
+1. Haluskan bumbu sesuai resep yg ada. kemudian suwir2 ayam agar di gongso nanti bumbu bisa meresap. dan iris tipis bawang bombay
+1. Ambil wajan/teflon masukkan minyak lalu tumis bawang bombay sampai harum dan kecoklatan, lalu masukkan bumbu halus, daun salam, lengkuas. tumis sampai harum
+1. Masukkan ayam, gongso hingga merata dengan bumbu. masukkan kecap manis, garam, lada, penyedap rasa. masukkan air sedikit demi sedikit, gongso hingga air menyusut, koreksi rasa. dan siap disajikan dengan nasi panas 😋
+
+
+
+
+Terima kasih telah menggunakan resep yang kami tampilkan di sini. Besar harapan kami, olahan Gongso Ayam khas Semarang yang mudah di atas dapat membantu Anda menyiapkan hidangan yang sedap untuk keluarga/teman ataupun menjadi ide untuk berjualan makanan. Selamat mencoba!

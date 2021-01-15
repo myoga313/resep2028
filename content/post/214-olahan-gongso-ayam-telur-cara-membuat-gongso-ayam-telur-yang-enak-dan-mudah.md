@@ -1,0 +1,95 @@
+---
+description: "Olahan Gongso ayam telur | Cara Membuat Gongso ayam telur Yang Enak Dan Mudah"
+title: "Olahan Gongso ayam telur | Cara Membuat Gongso ayam telur Yang Enak Dan Mudah"
+slug: 214-olahan-gongso-ayam-telur-cara-membuat-gongso-ayam-telur-yang-enak-dan-mudah
+date: 2020-09-21T03:49:23.691Z
+image: https://img-global.cpcdn.com/recipes/333f5ed897d0f2e2/751x532cq70/gongso-ayam-telur-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/333f5ed897d0f2e2/751x532cq70/gongso-ayam-telur-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/333f5ed897d0f2e2/751x532cq70/gongso-ayam-telur-foto-resep-utama.jpg
+author: Harold Ballard
+ratingvalue: 3.3
+reviewcount: 3
+recipeingredient:
+- "100 gram Ayam"
+- "2 butir Telur"
+- "1/2 buah bawang bombay"
+- "3 siung bawang merah"
+- "1 siung bawang putih"
+- "1 kemiri"
+- "5 buah cabe rawit"
+- "1/4 sdt Lada"
+- "2 sdm Saus tiram"
+- "2 sdm Kecap"
+- "1/4 sdt Kaldu bubuk"
+- "200 ml Air"
+- "1 buah Tomat"
+- "3 lembar Kol"
+recipeinstructions:
+- "Haluskan bumbu bawang putih, bawang merah, kemiri, cabe dan tomat kemudian sangrai dengan bawang bombay hingga harum, sisihkan di pinggir"
+- "Masukkan telur, aduk rata, kemudian tambahkan ayam"
+- "Masukkan air, saus tiram, kaldu, lada bubuk, kecap, koreksi rasa. Tambahkan garam bisa kurang asin"
+- "Tambahkan sayur kol, aduk masak hingga matang, sajikan"
+categories:
+- Resep
+tags:
+- gongso
+- ayam
+- telur
+
+katakunci: gongso ayam telur 
+nutrition: 289 calories
+recipecuisine: Indonesian
+preptime: "PT33M"
+cooktime: "PT50M"
+recipeyield: "3"
+recipecategory: Lunch
+
+---
+
+
+![Gongso ayam telur](https://img-global.cpcdn.com/recipes/333f5ed897d0f2e2/751x532cq70/gongso-ayam-telur-foto-resep-utama.jpg)
+
+Lagi mencari inspirasi resep gongso ayam telur yang Menggugah Selera? Cara membuatnya memang tidak susah dan tidak juga mudah. seandainya keliru mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal gongso ayam telur yang enak seharusnya punya aroma dan rasa yang bisa memancing selera kita.
+
+Ada beberapa hal yang sedikit banyak mempengaruhi kualitas rasa dari gongso ayam telur, pertama dari jenis bahan, lalu pemilihan bahan segar, hingga cara membuat dan menyajikannya. Tak perlu pusing kalau ingin menyiapkan gongso ayam telur yang enak di mana pun anda berada, karena asal sudah tahu triknya maka hidangan ini dapat jadi sajian spesial.
+
+
+
+
+Nah, kali ini kita coba, yuk, variasikan gongso ayam telur sendiri di rumah. Tetap dengan bahan yang sederhana, sajian ini dapat memberi manfaat untuk membantu menjaga kesehatan tubuhmu sekeluarga. Anda bisa menyiapkan Gongso ayam telur memakai 14 jenis bahan dan 4 tahap pembuatan. Berikut ini langkah-langkah dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang dibutuhkan untuk pembuatan Gongso ayam telur:
+
+1. Gunakan 100 gram Ayam
+1. Siapkan 2 butir Telur
+1. Gunakan 1/2 buah bawang bombay
+1. Gunakan 3 siung bawang merah
+1. Ambil 1 siung bawang putih
+1. Gunakan 1 kemiri
+1. Gunakan 5 buah cabe rawit
+1. Siapkan 1/4 sdt Lada
+1. Siapkan 2 sdm Saus tiram
+1. Siapkan 2 sdm Kecap
+1. Gunakan 1/4 sdt Kaldu bubuk
+1. Gunakan 200 ml Air
+1. Ambil 1 buah Tomat
+1. Ambil 3 lembar Kol
+
+
+
+
+<!--inarticleads2-->
+
+##### Langkah-langkah membuat Gongso ayam telur:
+
+1. Haluskan bumbu bawang putih, bawang merah, kemiri, cabe dan tomat kemudian sangrai dengan bawang bombay hingga harum, sisihkan di pinggir
+1. Masukkan telur, aduk rata, kemudian tambahkan ayam
+1. Masukkan air, saus tiram, kaldu, lada bubuk, kecap, koreksi rasa. Tambahkan garam bisa kurang asin
+1. Tambahkan sayur kol, aduk masak hingga matang, sajikan
+
+
+
+
+Terima kasih telah menggunakan resep yang kami tampilkan di halaman ini. Harapan kami, olahan Gongso ayam telur yang mudah di atas dapat membantu Anda menyiapkan hidangan yang menarik untuk keluarga/teman ataupun menjadi inspirasi untuk berbisnis kuliner. Selamat mencoba!
