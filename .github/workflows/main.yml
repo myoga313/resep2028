@@ -20,7 +20,7 @@ jobs:
         run: hugo
 
       - name: Install Dependencies
-        run: npm install
+        run: npm install --global yarn
 
       - name: Deploy to Firebase
         uses: w9jds/firebase-action@master
